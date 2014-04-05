@@ -1,6 +1,6 @@
-When driving through the Fourth Ward of Houston today, one can still see pieces of the history of Freedman's Town, the community founded by free African-Americans in the 19th century, scattered between modern houses and downtown Houston's skyrises. 
+When driving through the Fourth Ward of Houston today, one can still see pieces of the history of Freedman's Town, the community founded by free African-Americans in the 19th century, scattered between modern houses and downtown Houston's skyrise. Although Freedman's Town was added to the National Register of Historic Places in 1984, 
 
-Freedman's Town was added to the National Register of Historic Places in 1984. 
+Freedman's Town is the only remaining post-Civil War, freed slave community of its kind in the United States and therefore provides valuable insight into the lives of urban African-American communities post Emancipation. 
 
 Just as the things we purchase today can help in building our different identities, the inhabitants of Freedman's Town made choices about the things they consumed that created identities in their social contexts. Post-emancipation urban historical archaeology from around the United States has shown that there is no set pattern of African-American consumption; people of many different socioeconomic backgrounds and ethnicities made choices to resist and to conform to social conventions and beliefs of their time. The inhabitants of Freedman's Town were no different.
 
