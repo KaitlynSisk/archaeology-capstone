@@ -18,18 +18,12 @@ Yates' son, Rutherford, had a home next door of his own at 1314 Andrews. One of 
 
 ###The J. Vance Lewis House
 
-Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent lawyer in Freedman's Town. The property originally belonged to Isabella Simms, who bought the land in 1874 for $80. Lewis acquired the property through his wife and tore down the original house in 1907 to build the one that currently stands at 1218 Wilson. Dubbed "Van Court" by Lewis, the house was built by L. R. Jones for $2,800. 
+Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent lawyer in Freedman's Town. The property originally belonged to Isabella Simms, who bought the land in 1874 for $80. Lewis acquired the property through his wife and tore down the original house in 1907 to build the one that currently stands at 1218 Wilson. Dubbed "Van Court" by Lewis, the current house was built by L. R. Jones for $2,800. 
 
 (INSERT IMAGE: J. VANCE LEWIS HOUSE)
 
 ###The Wilson-Victor Property
 
-The property at the At one point had three different buildings on it: a store, a barber shop, and a home
-
-In the 1920s, two african american barbers, James Williams and Earl T. Randon, owned the home/barbershop. 1950s owned by Flossie Davies and Faye Tarver.
-
-Although the corner store on the Wilson-Victor property was owned by Italian immigrants, Freedman's Town was an important hub for African-American entrepreneurship. In 1910, around 32% of African-American owned businesses were located in the Fourth Ward. 
-
-Shotgun house still remains, hopes for it to be restored and turned into a barbershop museum. 
+The property at 1404 Victor Street has served three different functions over the years: the location of a store, a barbershop, and a shotgun-style home. Although the store on the corner of Wilson and Victor was owned by Italian immigrants, Freedman's Town was an important hub for African-American entrepreneurship. In 1910, around 32% of African-American owned businesses were located in the Fourth Ward, including the barbershops on the Wilson-Victor property. The shotgun house was built in 1924, and was owned by two African American barbers, James Williams and Earl T. Randon, through the 1920s. In the 1950s, it was still functioning as a barbershop, owned by Flossie Davies and Faye Tarver. This shotgun house still remains, and the Yates Museum has initiated renovations to the building over the past few years, with the hopes to one day turn it into a barbershop museum.
 
 (INSERT IMAGE: HOUSE AT WILSON-VICTOR)
