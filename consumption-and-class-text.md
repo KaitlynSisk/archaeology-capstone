@@ -42,3 +42,7 @@ R. B. H. Yates house (T report)
 * dolls can be used as an indicator of socioeconomic status - started making porcelain dolls for wealthy families - other companies began making similar models for cheaper
 * jointed doll parts found - well made dolls
 * still had a bennington marble - relatively inexpensive
+
+Wilson-Victor (2013)
+
+* Ear from porcelain rabbit
