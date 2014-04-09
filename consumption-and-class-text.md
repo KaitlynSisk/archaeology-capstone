@@ -6,24 +6,11 @@ Ceramic analysis in the archaeological record can reveal much about the socioeco
 
 ###Taking Tea
 
-Many of the households in Freedman's Town used fine ceramic teaware to take their tea, showing that at least some of the families in the community were able to afford these luxury items. Excavations at 1312 Ruthven revealed a total of 12 teacup handles - half porcelain and half whiteware, a less expensive kind of ceramic. One single sherd of Egyptian black basalt pottery was also found. A relatively high amount of porcelain was found at this site, which could mean that this household was particularly wealthy. Many of the fragments of tea saucers and tea cups were discovered in one particular area of the backyard. It is possible that the occupants of this home enjoyed drinking their tea outside and had a particular area designated to the ritual of taking tea. 
+Many of the households in Freedman's Town used fine ceramic teaware to take their tea, showing that at least some of the families in the community were able to afford these luxury items. Excavations at 1312 Ruthven revealed many fragments of teacup handles and saucers, many with a decorative scalloped edge. A relatively high amount of porcelain was found at Ruthven site, which could mean that this household was particularly wealthy. 
 
-R. B. H. Yates House (2008)
-* half of child's teacup found, china, missing back half and handle
+Rutherford B. H. Yates and his family enjoyed taking tea at their home too. Twelve teacup handles - six china and six whiteware, a less expensive ceramic - were discovered in excavations. Many of the fragments of tea saucers and tea cups were discovered in one particular area of the backyard. It is possible that the occupants of this home enjoyed drinking their tea outside and had a particular area designated to the ritual of taking tea. 
 
-R. B. H. Yates House (T report)
-* 12 teacup handles found - 6 porcelain and 6 whiteware
-* area around subunit 2 likely used for outside tea drinking
-* sherd of Egyptian black basalt pottery
-* mismatched, but still could afford to practice
-
-Ruthven 1312 site (2011)
-
-* relatively high amounts of porcelain
-* teacup saucer fragments
-* china teacup handles
-* scalloped edges, not common for teaware during the time
-* drinking hot tea--with expensive tea ware, but possible that they were collecting
+Along with the tea handles, one single sherd of Egyptian black basalt pottery was also found on the Yates' property. This kind of pottery is almost exclusively used in tea wares such as teapots, sugar bowls, and other ornamental tea equipage and likely added to the inhabitants' mismatched collection of tea equipage. As with many African American middle class families around the United States, the Yates family had tea cups of many different decorations and styles. Instead of buying a complete set, they collected vessels one by one, building a complete set over time. Their set even included teacups for their children. Despite the mismatched tea sets, the Yates family, and many families in Freedman's Town, could afford to take their tea in style.
 
 ###Playtime
 
