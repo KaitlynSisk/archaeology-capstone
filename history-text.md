@@ -8,19 +8,23 @@ Despite the endemic racism in Houston in the early 20<sup>th</sup> century, Free
 
 TALK ABOUT FIRSTS: schools, hospitals, churches, etc
 
+[The Gregory School](http://www.youtube.com/watch?v=9ucfzIhBsR8&list=UUuXhswcQ63ROYe0JmUuNdzQ)
+
 (INSERT IMAGE?: THE GREGORY SCHOOL, THE FIRST PUBLIC AFRICAN AMERICAN SCHOOL IN THE FOURTH WARD, WHICH OPENED IN 1870)
 
 ###The Rutherford B. H. Yates House
 
 John Henry (Jack) Yates, the father of Rutherford B. H. Yates, was the first pastor of Antioch Baptist Church in Freedman's Town and an important community leader. It is because of Jack Yates that home ownership was so common in Freedman's Town, as he assisted incoming families with legal processes and encouraged people in his congregation to purchase their homes. His own two-story home, the first of its kind owned by an African-American, now resides at [Sam Houston Park](http://www.heritagesociety.org/yates.html). 
 
-Jack Yates' son, Rutherford, had a home next door at 1314 Andrews. One of four of Jack Yates' children to earn a (high school/college?) degree, Rutherford set up a printing business called the Yates Printing Business of Houston. He is remembered as a successful businessman and for authoring a book about the incredible life of his father. His home has been restored and reclaimed as the [Rutherford B. H. Yates Museum](http://www.publicarchaeology.org/yates/index.html), a place to study and learn about the history of Freedman's Town.
+Jack Yates' son, Rutherford, had [a home](http://www.youtube.com/watch?v=lkZZ0VMjJHI&list=UUuXhswcQ63ROYe0JmUuNdzQ) next door at 1314 Andrews. One of four of Jack Yates' children to earn a (high school/college?) degree, Rutherford set up a printing business called the Yates Printing Business of Houston. He is remembered as a successful businessman and for authoring a book about the incredible life of his father. His home has been restored and reclaimed as the [Rutherford B. H. Yates Museum](http://www.publicarchaeology.org/yates/index.html), a place to study and learn about the history of Freedman's Town.
 
 (INSERT IMAGE: YATES MUSEUM)
 
 ###The J. Vance Lewis House
 
-Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent lawyer in Freedman's Town. The property originally belonged to Isabella Simms, who bought the land in 1874 for $80. Lewis acquired the property through his wife, removed the original house in 1907, and built the one that currently stands on the property. Dubbed "Van Court" by Lewis, the current house was built by L. R. Jones for $2,800. 
+Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent lawyer in Freedman's Town. A former school teacher, Lewis dreamed of becoming a lawyer and received law degrees from Michigan and the Chicago School of Law. He became famous in Harris County for being the first African-American lawyer to win a case in favor of a black client accused of murder; however, he was soon questionably accused of irregularity with some of his other cases and was forced to cease practicing law for six months and then seven years. Lewis did not take this as much of a setback, however, as he shifted to civil cases before resuming his full practice. In between cases, Lewis was known for giving fiery speeches and encouraging fellow African Americans to follow their dreams and to become educated.  
+
+The property originally belonged to Isabella Simms, who bought the land in 1874 for $80. Lewis acquired the property through his wife, removed the original house in 1907, and built the one that currently stands on the property. Dubbed "Van Court" by Lewis, [the current house](http://www.youtube.com/watch?v=lbkmNfGZ3BM) was built by L. R. Jones for $2,800. 
 
 (more about J. Vance Lewis)
 
@@ -28,6 +32,6 @@ Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent 
 
 ###The Wilson-Victor Property
 
-The property at the northwest corner of Wilson and Victor Streets has served three different functions over the years: the location of a store, a barbershop, and two shotgun-style houses. The store on the corner of Wilson and Victor was owned by Italian immigrants, and it served the diverse neighborhoods of Freedman's Town. In 1910, approximately 32% of African American-owned businesses were located in the Fourth Ward, including the barbershop on the Wilson-Victor property. The shotgun house was built in 1924, and was owned by two African American barbers, James Williams and Earl T. Randon, through the 1920s. The barbershop was stil open in the 1950s, owned by Flossie Davies and Faye Tarver. The barbershop has now been completely restored by the R. B. H. Yates Musem, and they have begun renovations on the one shotgun house that remains. 
+The property at the northwest corner of Wilson and Victor Streets has served three different functions over the years: the location of a store, a barbershop, and two shotgun-style houses. [The store](http://www.youtube.com/watch?v=60NnHbpCTC0&list=UUuXhswcQ63ROYe0JmUuNdzQ)was owned by Italian immigrants, and it served the diverse neighborhoods of Freedman's Town. In 1910, approximately 32% of African American-owned businesses were located in the Fourth Ward, including the barbershop on the Wilson-Victor property. The shotgun house was built in 1924, and was owned by two African American barbers, James Williams and Earl T. Randon, through the 1920s. The barbershop was stil open in the 1950s, owned by Flossie Davies and Faye Tarver. The barbershop has now been completely restored by the R. B. H. Yates Musem, and they have begun renovations on the one shotgun house that remains. 
 
 (INSERT IMAGE: HOUSE AT WILSON-VICTOR)
