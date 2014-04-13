@@ -24,12 +24,10 @@ Located at 1218 Wilson Street, the J. Vance Lewis House belonged to a prominent 
 
 The property originally belonged to Isabella Simms, who bought the land in 1874 for $80. Lewis acquired the property through his wife, removed the original house in 1907, and built the one that currently stands on the property. Dubbed "Van Court" by Lewis, [the current house](http://www.youtube.com/watch?v=lbkmNfGZ3BM) was built by L. R. Jones for $2,800. 
 
-(more about J. Vance Lewis)
-
 (INSERT IMAGE: J. VANCE LEWIS HOUSE)
 
 ###The Wilson-Victor Property
 
-The property at the northwest corner of Wilson and Victor Streets has served three different functions over the years: the location of a store, a barbershop, and two shotgun-style houses. [The store](http://www.youtube.com/watch?v=60NnHbpCTC0&list=UUuXhswcQ63ROYe0JmUuNdzQ)was owned by Italian immigrants, and it served the diverse neighborhoods of Freedman's Town. In 1910, approximately 32% of African American-owned businesses were located in the Fourth Ward, including the barbershop on the Wilson-Victor property. The shotgun house was built in 1924, and was owned by two African American barbers, James Williams and Earl T. Randon, through the 1920s. The barbershop was stil open in the 1950s, owned by Flossie Davies and Faye Tarver. The barbershop has now been completely restored by the R. B. H. Yates Musem, and they have begun renovations on the one shotgun house that remains. 
+The property at the northwest corner of Wilson and Victor Streets has served three different functions over the years: the location of a store, a barbershop, and two shotgun-style houses. [The store](http://www.youtube.com/watch?v=60NnHbpCTC0&list=UUuXhswcQ63ROYe0JmUuNdzQ) was owned by Italian immigrants, and it served the diverse neighborhoods of Freedman's Town. In 1910, approximately 32% of African American-owned businesses were located in the Fourth Ward, including the barbershop on the Wilson-Victor property. The shotgun house was built in 1924, and was owned by two African American barbers, James Williams and Earl T. Randon, through the 1920s. The barbershop was stil open in the 1950s, owned by Flossie Davies and Faye Tarver. The barbershop has now been completely restored by the R. B. H. Yates Musem, and they have begun renovations on the one shotgun house that remains. 
 
 (INSERT IMAGE: HOUSE AT WILSON-VICTOR)
