@@ -4,29 +4,10 @@ Despite that numerous studies about African American archaeology focus on what s
 
 One way that archaeologists can roughly determine the socioeconomic status of the inhabitants at a site is the presence of different cuts of professionally butchered meats. Finding bones from short loin and sirloin cuts of beef could indicate that a family could afford higher quality cuts of meat, at least occasionally. An abundance of lower quality cuts of beef and pork, such as shank cuts used in stews, is an indication that a family was probably of a lower socioeconomic status. Looking at the frequency of bones of different animals and different cuts, combined with an analysis of other artifacts such as ceramics, can give a sense of the socioeconomic status of the inhabitants of a site. 
 
-###The Yates House
+###Diet and Class in Freedman's Town
 
-In lower levels, have lower quality meat cuts, but the more recent levels have high quality cuts - grew in socioeconomic status over time (butchered long bones of cow in lower levels and sirloin and short loin in abundance in higher levels)
+Previous studies done in Freedman's Town showed that residents consumed a typical urban Texas diet of cows and pigs. Excavations done by Rice University at the R. B. H. Yates house, the J. Vance Lewis house, the Wilson-Victor property, and 1312 Ruthven found mostly bones of cow and pig, which confirms this. Residents also sometimes consumed venison, fish, sheep, and chicken, as  fragments of these bone were discovered across sites. However, pork and beef was likely the main staples of households in Freedman's Town. Most bones found on site showed signs of professional butchering, so it is likely that animals were not raised, killed, and butchered on site. The faunal remains at these sites suggest that the inhabitants were of a relatively high socioeconomic status. In general, most sites contained remains of expensive cuts as well as other middle-value cuts and lower-value cuts. It is likely that the inhabitants of these sites in Freedman's Town could afford to occasionally enjoy higher quality meats, but most of their diets consisted of more economical cuts of meat. 
 
-Had mostly cow and pig bones, all parts of pigs were eaten
+###The Yates Family
 
-Also has expensive cuts with lower cuts - wealthy enough to afford high quality meat occasionally
-
-Combined with expensive porcelain and dolls, this household was probably fairly wealthy
-
-###The J. Vance Lewis House
-
-Seems to have a variety of high quality cuts and medium/low value cuts 
-
-###The Wilson-Victor Property
-
-###Freedman's Town
-
-* according to Feit, residents of project area had typical diet for a Texas urban site - cows and pigs
-* most sites had a majority of butchered meats, so likely little butchering was done on site.
-* Difficult to tell economic status from small sampling in excavations, but can get a sense.
-* sheep, deer, and fish also consumed by residents 
-* across all sites, cow, pig, and deer consumed most commonly
-* Freedman’s town residents were buying expensive cuts of meat as well as eating economical cuts of meat
-* Yates’ residence enjoyed a wider variety of meat, while others relied primarily upon cow and pig
-
+The evidence at the Rutherford B. H. Yates house follows a slightly different trend. In general, the Yates family had a wider variety of meat in their diet than other residents, who relied primarily upon cow and pig. The cuts of these meats ranged from economical to high quality, like many of the other sites in Freedman's Town. They also ranged between levels of the excavated site. In one particular unit, the older levels contained lower quality meat cuts such as long bones, while the more recent levels had higher quality cuts such as sirloin and short loin. This could mean that the family grew in socioeconomic status over time. The faunal evidience at the Yates site combined with the porcelain dolls and the fine tea wares reveals that the Yates family likely attained a middle-class status. 
