@@ -1,10 +1,10 @@
-#Consumption and Class
+<h1><a id="top">Consumption and Class</a></h1>
 
 After Emancipation, a new middle class that included African Americans began to emerge in US cities. With more opportunities to participate in the consumer market and to create businesses of their own, a new form of African American "gentility" started to form. Though many African Americans participating in this racist post-Emancipation market found ways to show resistance, some also took part in popular consumer activities as a means to show their status. 
 
 The analysis of ceramic from the archaeological record can reveal much about the socioeconomic status and consumption practices of the people who used and discarded them. The presence of fine ceramics, like porcelain, is one idnication that people were potentially demonstrating household status. For example, research carried out at historic [New Philadelphia, Illinois](http://www.histarch.illinois.edu/NP/index.html), a multiethnic community founded by a free African American in the 19th century, shows that families throughout the community drank tea from a variety of differently priced ceramic tea wares. Even though there was a wide variety of tea vessels located, it seems that they were used in the same way as in these African-American households as with contemporary white households. Tea drinking was a widespread practice during the Victorian era, but archaeological research in Lowell, Massachusetts has shown that ceramic assemblages differed between middle-class and working-class households most distinctly in the presence or absence of fine tea and coffee wares (citation XX). Thus, having a fine tea set was seen as a mark of status and wealth for families all over the United States, including in Freedman's Town.
 
-###Taking Tea
+<h3><a id="tea">Taking Tea</a></h3>
 
 Based on the ceramics located through excavations, many of the households in Freedman's Town seemed to have used fine ceramic teaware to take their tea, showing that at least some of the families in the community were able to afford these luxury items. Excavations at 1312 Ruthven revealed many fragments of teacup handles and saucers, some with a decorative scalloped edge. A relatively high amount of porcelain was found at Ruthven site, which could mean that this household was particularly wealthy. 
 
@@ -12,7 +12,7 @@ The data also suggests that Rutherford B. H. Yates and his family enjoyed taking
 
 Along with the tea handles, one single sherd of Egyptian black basalt pottery was also found on the Yates' property. This type of pottery is almost exclusively used in ornamental tea wares, such as teapots and sugar bowls; it may have been part of an eclectic collection of tea equpage. We know from other excavations and historic descriptions that many African American middle class families had tea cups of many different decorations and styles, and this was the case for the Yates family as well. Instead of buying a complete set, they collected vessels one by one, building a complete set over time. Their set even included teacups for their children. Despite the mismatched tea sets, the Yates family, and many families in Freedman's Town, could afford to take their tea in style.
 
-###Playtime
+<h3><a id="playtime">Playtime</a></h3>
 
 Porcelain is not solely used for teacups. During the Victorian period, porcelain dolls became popular among wealthy families. These porcelain dolls were more expensive, but many companies started making less expensive, but similar styles of dolls called "frozen Charlottes." These dolls were made all in one piece, while the more expensive dolls were made in separate pieces. Thus, the presence of a "frozen Charlotte" or a jointed porcelain doll in the archaeological record can be a good indicator of the inhabitants' socioeconomic status, alongside other data.
 
