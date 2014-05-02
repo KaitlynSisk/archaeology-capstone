@@ -1,10 +1,10 @@
-#Consumption as Resistance
+<h1><a id="top">Consumption as Resistance</a></h1>
 
 Even though urban African Americans were able to enjoy popular pastimes through consumer culture in the late 19<sup>th</sup> and early 20<sup>th</sup> centuries, many also found ways to use this consumer culture as resistance to racism. [Archaeological excavations](http://www.aia.umd.edu/index.html) at the housese of African Americans in Annapolis, Maryland revealed data that suggests that they often chose to consume nationally-branded goods as opposed to those produced locally as a way to avoid the racism of local producers. Buying brands ensured consistent quality of goods, fair prices, and uncontaminated product that were often difficult to acquire in the local market. 
 
 This pattern of brand consumption was not limited to a certain class or economic group. Homes in working-class and middle-class neighborhoods in Annapolis, such as from the [Maynard-Burgess House](http://www.aia.umd.edu/maynard.html), contained many nationally produced bottles, cans, and jars. These houses also had a shortage of preservation jars in the archaeological record, likely because of the racialized caricatures of African Americans in public discourse at the time associated with these items. The resistance to racism was shared between members of different classes in Annapolis.
 
-###Brand Consumption in Freedman's Town
+<h3><a id="brand">Brand Consumption in Freedman's Town</a></h3>
 
 Evidence at Freedman's Town paints a slightly different picture than at Annapolis, Maryland. The Fourth Ward was a hub for African American businesses and culture in Houston, and findings from archaeologists Rachel Feit and B. M. Jones show that members of the Fourth Ward community likely relied on goods produced locally. Excavations done by Rice University have also discovered numerous bottles, jars, and other containers that suggest brand consumption. Archaeological materials found in Freedman's Town reveal that community members participated in numerous economic spheres, potentially for a variety of reasons. 
 
