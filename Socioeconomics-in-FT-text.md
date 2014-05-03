@@ -1,4 +1,4 @@
-<h1><a id="top">Socioeconomics in Freedman's Town</a><h1>
+<h1><a id="top">Socioeconomics in Freedman's Town</a></h1>
 
 Numerous studies of African American archaeological sites have focused on data that seems to set African American communities apart from others. However, more recent studies ofarchaeological assemblages from urban African-American communities suggests that distinctions in socio-economic status are far from clear, no matter the race or ethnicity of the inhabitants. For example, researchers at [New Philadelphia](http://www.histarch.illinois.edu/NP/history.html) found that it was often difficult to tell an African American home from a white European settler's home based on archaeological remains alone. Differences in assemblages were more prevalent between houses of people from different classes and socioeconomic positions. Within a multi-ethnic, working-class neighborhood - such as in New Philadelphia and Freedman's Town - the archaeological record shows evidence of socioeconomic distinctions, but not necessarily racial ones. 
 
