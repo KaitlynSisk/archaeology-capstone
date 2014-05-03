@@ -14,11 +14,13 @@ In 1984, Freedman's Town was designated as a national historic district. Despite
 
 [Archaeology in Annapolis.](http://www.aia.umd.edu/) University of Maryland, College Park, 2011. 
 
-Brantsner, Mark and Terrance Martin. “Working-Class Detroit: Late Victorian Consumer Choices and Status.” Consumer Choices in Historical Archaeology. Ed. Suzanne Spencer-Wood. Pp 301-320. New York: Plenum Press, 1987. 
+Beaudry, Mary. "Artifacts and Active Voices: Material Culture as Social Discourse. *The Archaeology of Inequality.* Ed. Randall H. Mcguire and Robert Paynter. Pp. 150-191. Oxford: Basil Blackwell (1991).
 
-Davidson, James M. “Living Symbols of their Lifelong Struggles: In Search of the Home and Household in the Heart of Freedman’s Town, Dallas, Texas.” Household Chores and Household Choices: Theorizing the Domestic Sphere in Historical Archaeology. Ed. Suzanne Spencer-Wood. Pp 75-106. Tuscaloosa: University of Alabama Press.
+Brantsner, Mark and Terrance Martin. “Working-Class Detroit: Late Victorian Consumer Choices and Status.” *Consumer Choices in Historical Archaeology.* Ed. Suzanne Spencer-Wood. Pp 301-320. New York: Plenum Press, 1987. 
 
-Davidson, Paula E. "Patterns in Urban Food Ways: An Example From Early Twentieth-Century Atlanta." In Archaeology of Urban America: The Search for Pattern and Process, edited by Roy S. Dickens, Jr., 381-398. New York: Academic Press, 1982.
+Davidson, James M. “Living Symbols of their Lifelong Struggles: In Search of the Home and Household in the Heart of Freedman’s Town, Dallas, Texas.” *Household Chores and Household Choices: Theorizing the Domestic Sphere in Historical Archaeology.* Ed. Suzanne Spencer-Wood. Pp 75-106. Tuscaloosa: University of Alabama Press.
+
+Davidson, Paula E. "Patterns in Urban Food Ways: An Example From Early Twentieth-Century Atlanta." *Archaeology of Urban America: The Search for Pattern and Process.* Ed. Roy S. Dickens, Jr. Pp. 381-398. New York: Academic Press, 1982.
 
 Fleisher, Jeffrey, ed. [Final Report on the 2009 Excavations at the Rutherford B. H. Yates House Site.](http://freedmanstownarchaeology.rice.edu/reports/2009YatesReport.pdf)
 
@@ -28,7 +30,7 @@ Fleisher, Jeffrey, ed. Final Report on the 2013 Excavations at the Wilson-Victor
 
 [Houston Preservation (Channel).](https://www.youtube.com/user/HoustonPreservation) Youtube.com.
 
-Larsen, Eric L. “Integrating Segregated Urban Landscapes of the Late-Nineteenth and Early-Twentieth Centuries.” Historical Archaeology 37.3:  111-123 (2003). 
+Larsen, Eric L. “Integrating Segregated Urban Landscapes of the Late-Nineteenth and Early-Twentieth Centuries.” *Historical Archaeology* 37.3:  111-123 (2003). 
 
 McIntosh, Susan K. and Brian T. Clark, eds. [Final Report on the 2008 Excavations at the R. B. H. Yates House.](http://freedmanstownarchaeology.rice.edu/reports/2008YatesReport.pdf)
 
@@ -36,18 +38,18 @@ McIntosh, Susan K., ed. [Final Report on the 2010 Excavations at the J. Vance Le
 
 McIntosh, Susan K., ed. [Final Report on the 2011 Excavations at the Ruthven 1312 Site.](http://freedmanstownarchaeology.rice.edu/reports/2011YatesReport.pdf)
 
-McDavid, Carol. “When is Gone Gone? Archaeology, Gentrification, and Competing Narratives about Freedman’s Town, Houston.” Historical Archaeology 45.3: 74-88 (2011).
+McDavid, Carol. “When is Gone Gone? Archaeology, Gentrification, and Competing Narratives about Freedman’s Town, Houston.” *Historical Archaeology* 45.3: 74-88 (2011).
 
-Mullins, Paul R. “Marketing in a Multicultural Neighborhood: An Archaeology of Corner Stores in the Urban Midwest.” Historical Archaeology 42.1: 88-96 (2008).
+Mullins, Paul R. “Marketing in a Multicultural Neighborhood: An Archaeology of Corner Stores in the Urban Midwest.” *Historical Archaeology* 42.1: 88-96 (2008).
 
-Mullins, Paul R. Race and Affluence: An Archaeology of African America and Consumer Culture. Boston: Kluwer Academic/Plenum Publishers, 1999.
+Mullins, Paul R. *Race and Affluence: An Archaeology of African America and Consumer Culture.* Boston: Kluwer Academic/Plenum Publishers, 1999.
 
-Mullins, Paul R. “Race and the Genteel Consumer: Class and African-American Consumption, 1850-1930.” Historical Archaeology 33.1: 22-38 (1999).
+Mullins, Paul R. “Race and the Genteel Consumer: Class and African-American Consumption, 1850-1930.” *Historical Archaeology* 33.1: 22-38 (1999).
 
-[New Philadelphia Archaeology Project.](http://www.histarch.illinois.edu/NP/index.html) University of Illinois at Urbana-Champaign. Web.
+[New Philadelphia Archaeology Project.](http://www.histarch.illinois.edu/NP/index.html) University of Illinois at Urbana-Champaign. 
 
-Prather, Patricia S.  ["Lewis, Joseph Vance."](http://www.tshaonline.org/handbook/online/articles/fleaj) Handbook of Texas Online. Uploaded on November 6, 2013. Published by the Texas State Historical Association.
+Prather, Patricia S.  ["Lewis, Joseph Vance."](http://www.tshaonline.org/handbook/online/articles/fleaj) *Handbook of Texas Online.* Uploaded on November 6, 2013. Published by the Texas State Historical Association.
 
-Shackel, Paul A. “Identity and Collective Action in a Multiracial Community.” Historical Archaeology 44.1: 58-71 (2010).
+Shackel, Paul A. “Identity and Collective Action in a Multiracial Community.” *Historical Archaeology* 44.1: 58-71 (2010).
 
-Wintz, Cary D. ["Fourth Ward, Houston."](http://www.tshaonline.org/handbook/online/articles/hpf01) Handbook of Texas Online. Uploaded on June 12, 2010. Published by the Texas State Historical Association.
+Wintz, Cary D. ["Fourth Ward, Houston."](http://www.tshaonline.org/handbook/online/articles/hpf01) *Handbook of Texas Online.* Uploaded on June 12, 2010. Published by the Texas State Historical Association.
