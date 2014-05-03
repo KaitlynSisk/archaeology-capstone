@@ -1,6 +1,6 @@
 <h1><a id="top">Consumption in Freedman's Town</a></h1>
 
-The archaeological evidence at Freedman's Town suggests that inhabitants navigated complex social and consumer spheres. After locating remnants of these consumer activities, it is easy to imagine the people of Freedman's Town drinking tea as a family in the backyard or purchasing goods at local stores in the thriving community. Like with all archaeological research, though, data from Freedman's Town poses more questions than it answers. Archaeology at Freedman's Town can help us to better understand urban African-American life in the late 19th and early 20th centuries in Houston.
+The archaeological evidence at Freedman's Town suggests that inhabitants navigated complex social and consumer spheres. Buying both locally produced and nationally-branded goods, collecting fine ceramics, and eating a range of different qualities of meat suggests that the people of Freedman's Town navigated through the struggles of a post-emancipation world in many different ways. After locating remnants of these consumer activities, it is easy to imagine the people of Freedman's Town drinking tea as a family in the backyard or purchasing goods at local stores in the thriving community. Like with all archaeological research, though, data from Freedman's Town poses more questions than it answers. Archaeology at Freedman's Town can help us to better understand urban African-American life in the late 19th and early 20th centuries in Houston.
 
 <h3><a id="about">About the project</a></h3>
 
